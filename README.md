@@ -5,7 +5,7 @@
 **Our Team Name  TECHDEVS.**
 
 
-**Our Team Rank in Qualifications Round 4842 🌎 1553 🇮🇳**
+**Our Team Rank in Qualifications Round 4842 🌎 1553 :india:**
 
 
 **Our Team Rank in Extended Round 568 🌎 120 🇮🇳**
